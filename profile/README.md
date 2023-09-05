@@ -36,7 +36,7 @@ Eclectica actively seeks collaborations with other college clubs and literary or
 
 ## Get Involved
 
-If you are passionate about literature, writing, or simply enjoy exploring the realms of creativity, we invite you to join Eclectica. Visit our website [eclecticatmsl.in](https://eclecticatmsl-iota.vercel.app/) to learn more about our club, upcoming events, and how to become a member.
+If you are passionate about literature, writing, or simply enjoy exploring the realms of creativity, we invite you to join Eclectica. Visit our website [eclecticatmsl.tech](https://eclecticatmsl.tech/) to learn more about our club, upcoming events, and how to become a member.
 
 Connect with us on social media for regular updates and announcements:
 
