@@ -1,4 +1,4 @@
-###Eclectica
+# **Eclectica**
 
 ![Eclectica Logo](https://i.postimg.cc/bNnPRkRk/Capture.jpg)
 
