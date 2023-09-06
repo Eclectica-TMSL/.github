@@ -43,6 +43,6 @@ Connect with us on social media for regular updates and announcements:
 - [Facebook](https://www.facebook.com/eclecticaTMSL/)
 - [Instagram](https://www.instagram.com/eclecticatmsl/)
 - [LinkedIn](https://www.linkedin.com/in/eclectica-tmsl-342b31185/)
-- [WhatsApp](https://api.whatsapp.com/send?phone=7718651718) 
+- [WhatsApp](https://api.whatsapp.com/send?phone=9433304972) 
 
 We look forward to welcoming you to the Eclectica Literary Club! Let's embark on a journey of words, imagination, and inspiration together.
